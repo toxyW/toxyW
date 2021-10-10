@@ -6,6 +6,4 @@
 
 ♧ the best
 
-♧the best
-
-W. 
+♧ the best
